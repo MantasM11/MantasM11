@@ -7,7 +7,7 @@ Currently, I'm looking for new job opportunities and working on expanding my exp
 
 ## What I'm Working On
 - Expanding my engineering skills and knowledge
-- Exploring new technologies and projects
+- Exploring new projects
 - Seeking opportunities to grow professionally
 
 ## Tools & Technologies
